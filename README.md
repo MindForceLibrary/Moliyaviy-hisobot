@@ -1,1 +1,0 @@
-# Moliyaviy-hisobot
